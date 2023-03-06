@@ -1,5 +1,5 @@
 # **Saliamanovich Alena** 
-## *Contacts infornation* 
+## *Contact information* 
 * Mobile phone: +37529 3030781
 * email: saliamanovicha@gmail.com 
 
